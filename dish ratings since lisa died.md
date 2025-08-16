@@ -4,8 +4,6 @@ Chickpea and Spinach Soup - Tassajara Cookbook 304
 
 ### Excellent
 
-Bulgur with chickpeas and spinach and zatar complete Mediterranean cookbook pg 126
-
 tabbouleh - The complete vegetarian cookbook - pg 182
 
 lentil and lemon soup. 2x next time. Add nice lettuce greens again. - Tassajara Cookbook 298
@@ -18,9 +16,13 @@ Sicilian escarole with cannellini beans - complete vegetarian cookbook page 208
 
 Turkish tomato, bulgur, and red pepper soup - compete Mediterranean cookbook page 50
 
+Pasta salad with fennel, red onion and sun dried tomatoes- complete vegetarian cookbook ph 143
+
 ### Very Good
 
 Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
+
+Bulgur with chickpeas and spinach and zatar complete Mediterranean cookbook pg 126
 
 BLTs with lightlife bacon
 
