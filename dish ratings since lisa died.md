@@ -18,6 +18,9 @@ Turkish tomato, bulgur, and red pepper soup - compete Mediterranean cookbook pag
 
 Pasta salad with fennel, red onion and sun dried tomatoes- complete vegetarian cookbook ph 143
 
+Black eyed peas with greens. Complete vegetarian cookbook pg 206
+
+
 ### Very Good
 
 Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
@@ -25,6 +28,8 @@ Pearl Couscous with Caramelized Fennel and Spinach - 187 complete vegetarian
 Bulgur with chickpeas and spinach and zatar complete Mediterranean cookbook pg 126
 
 BLTs with lightlife bacon
+
+Simple Pearl Couscous with Peas Feta and Picked Shallots - complete Mediterranean cookbook pg 166 - no feta because expired. Probably better with it
 
 
 ### Good
