@@ -2,6 +2,8 @@
 
 Chickpea and Spinach Soup - Tassajara Cookbook 304
 
+Brown butter cauliflower - 350 for fifteen minutes with vegan cultured butter? - very easy 
+
 ### Excellent
 
 tabbouleh - The complete vegetarian cookbook - pg 182
@@ -37,6 +39,10 @@ Simple Pearl Couscous with Peas Feta and Picked Shallots - complete Mediterranea
 Beans on toast
 
 Spaghetti with butter, capers, lemon, and parm
+
+Spaghetti with can sauce
+
+Frozen fries 400 - 15 minutes - eat with malt vinegar
 
 
 ### Good Enough
