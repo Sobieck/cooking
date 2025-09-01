@@ -2,7 +2,7 @@
 
 Chickpea and Spinach Soup - Tassajara Cookbook 304
 
-Brown butter cauliflower - 350 for fifteen minutes with vegan cultured butter? - very easy 
+Brown butter cauliflower - 325 for 35 minutes with vegan cultured butter? - very easy 
 
 ### Excellent
 
