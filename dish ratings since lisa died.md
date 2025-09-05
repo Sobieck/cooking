@@ -36,6 +36,8 @@ Simple Pearl Couscous with Peas Feta and Picked Shallots - complete Mediterranea
 
 ### Good
 
+Waffles - 1 to 1 whole grain mix to oat milk (basically) - add oil, vanilla
+
 Beans on toast
 
 Spaghetti with butter, capers, lemon, and parm
