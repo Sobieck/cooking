@@ -4,6 +4,8 @@ Chickpea and Spinach Soup - Tassajara Cookbook 304
 
 Brown butter cauliflower - 325 for 35 minutes with vegan cultured butter? - very easy 
 
+Potato vindaloo - The complete vegetarian cookbook pg 63
+
 ### Excellent
 
 tabbouleh - The complete vegetarian cookbook - pg 182
