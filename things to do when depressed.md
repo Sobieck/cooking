@@ -19,3 +19,5 @@ Plan a trip
 Look at real estate in Chicago
 
 Go out to eat
+
+Sign up for Stop the Bleed training. Some places will bundle it with a narcan training as well. It's usually a free class.

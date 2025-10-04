@@ -6,6 +6,10 @@ Brown butter cauliflower - 325 for 35 minutes with vegan cultured butter? - very
 
 Potato vindaloo - The complete vegetarian cookbook pg 63
 
+Popcorn
+
+Artichoke Mushroom Soup pg 50 complete Mediterranean
+
 ### Excellent
 
 tabbouleh - The complete vegetarian cookbook - pg 182
