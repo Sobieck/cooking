@@ -21,3 +21,15 @@ Look at real estate in Chicago
 Go out to eat
 
 Sign up for Stop the Bleed training. Some places will bundle it with a narcan training as well. It's usually a free class.
+
+Get into contact with mutual aid people in town
+
+Play computer games
+
+Find a friend to go to trivia with you
+
+Have a friend come over for boba
+
+Read a book in the sun room
+
+Watch TV

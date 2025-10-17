@@ -8,7 +8,6 @@ Potato vindaloo - The complete vegetarian cookbook pg 63
 
 Popcorn
 
-Artichoke Mushroom Soup pg 50 complete Mediterranean
 
 ### Excellent
 
@@ -39,6 +38,7 @@ BLTs with lightlife bacon
 
 Simple Pearl Couscous with Peas Feta and Picked Shallots - complete Mediterranean cookbook pg 166 - no feta because expired. Probably better with it
 
+Artichoke Mushroom Soup pg 50 complete Mediterranean
 
 ### Good
 
