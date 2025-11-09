@@ -8,6 +8,8 @@ Potato vindaloo - The complete vegetarian cookbook pg 63
 
 Popcorn
 
+mashed potatoes with grillers and gravy
+
 
 ### Excellent
 
