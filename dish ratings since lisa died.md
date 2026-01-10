@@ -10,6 +10,8 @@ Popcorn
 
 mashed potatoes with grillers and gravy
 
+frozen stir fry veggies
+
 
 ### Excellent
 
