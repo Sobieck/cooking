@@ -23,10 +23,12 @@ Give her a full fresh egg per container
 
 26-01-06: 8.06 lbs
 
-26-01-19: 8 lbs 2.2 oz 
+26-01-19: 8.13 lbs
 
-26-01-26: 8 lbs 2.3 oz
+26-01-26: 8.14 lbs
 
 26-02-03: 8.19 lbs
 
 26-02-10: 8.27 lbs
+
+26-02-17: 8.08 lbs
