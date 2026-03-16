@@ -38,3 +38,5 @@ Give her a full fresh egg per container
 26-03-02: 8.26 lbs
 
 26-03-09: 8.31 lbs
+
+26-03-16: 8.28 lbs
