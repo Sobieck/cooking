@@ -1,0 +1,1 @@
+lentil and lemon soup. 2x next time. Add nice lettuce greens again. - Tassajara Cookbook 298

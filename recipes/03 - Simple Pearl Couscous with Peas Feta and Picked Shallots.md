@@ -1,0 +1,1 @@
+Simple Pearl Couscous with Peas Feta and Picked Shallots - complete Mediterranean cookbook pg 166 - no feta because expired. Probably better with it
