@@ -33,3 +33,7 @@ Have a friend come over for boba
 Read a book in the sun room
 
 Watch TV
+
+Go to trailstop
+
+Play Cello
