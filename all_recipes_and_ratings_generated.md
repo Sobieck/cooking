@@ -12,7 +12,7 @@
 02 - English Muffins, Capers, and Cream Cheese.md
 02 - Firm Tofu Dipped In Panko.md
 02 - Lentil and Lemon Soup.md
-02 - lentil escarole.md
+02 - Lentil escarole.md
 02 - Pasta salad with fennel, red onion and sun dried tomatoes.md
 02 - Sicilian Escarole with Cannellini Beans.md
 02 - Tabbouleh.md
@@ -21,7 +21,8 @@
 03 - Beans on toast.md
 03 - BLT.md
 03 - Bulgur with chickpeas and spinach and zatar.md
-03 - chana soup.md
+03 - Chana soup.md
+03 - Chana with canned indian sauce.md
 03 - Frozen Stir Fry Veggies.md
 03 - Mashed Potatoes with Grillers and Gravy.md
 03 - Pearl Couscous with Caramelized Fennel and Spinach.md
@@ -32,7 +33,7 @@
 04 - French Toast.md
 04 - Frozen Fries.md
 04 - Pasta with Can Sauce.md
-04 - sauerkraut stew.md
+04 - Sauerkraut stew.md
 04 - Split Pea.md
 04 - Stuffin.md
 05 - Cereal.md
