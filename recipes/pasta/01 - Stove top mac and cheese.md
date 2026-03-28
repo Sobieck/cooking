@@ -6,7 +6,7 @@
 
 4 large eggs
 
-6 g hot sauce
+10 g hot sauce
 
 4 g mustard powder
 
