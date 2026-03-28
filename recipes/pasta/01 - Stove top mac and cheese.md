@@ -12,7 +12,7 @@
 
 1 gram black pepper
 
-24 ounces grated sharp chedder
+16 ounces grated sharp chedder
 
 
 
