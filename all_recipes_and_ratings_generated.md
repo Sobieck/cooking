@@ -3,7 +3,7 @@
 01 - Pan fried chicken.md
 01 - Stove top mac and cheese.md
 01 - Stovetop Popcorn.md
-01-thomas-keller-fried-chicken.md
+01 - Thomas keller fried chicken.md
 02 - Baked beets.md
 02 - Bean Burritos.md
 02 - Bean Hard Shell Tacos.md
