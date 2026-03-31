@@ -1,9 +1,9 @@
 01 - Brown Butter Cauliflower.md
 01 - Chickpea and spinach soup.md
 01 - Pan fried chicken.md
-01 - Potato Vindaloo.md
 01 - Stove top mac and cheese.md
 01 - Stovetop Popcorn.md
+01-thomas-keller-fried-chicken.md
 02 - Baked beets.md
 02 - Bean Burritos.md
 02 - Bean Hard Shell Tacos.md
@@ -38,7 +38,8 @@
 04 - French Toast.md
 04 - Frozen Fries.md
 04 - Pasta with Can Sauce.md
+04 - Potato Vindaloo.md
 04 - Sauerkraut stew.md
-04 - Split Pea.md
 04 - Stuffin.md
+04 - Veggie Split Pea.md
 05 - Cereal.md
