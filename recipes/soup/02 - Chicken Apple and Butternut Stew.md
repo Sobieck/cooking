@@ -1,7 +1,7 @@
 Chicken, Apple & Butternut Stew
 
 
-2 lb. boneless, skinless chicken breasts, cut into 1” pieces
+2 lb. boneless, skinless chicken thighs, cut into 1” pieces
 
 1 ¼ tsp. kosher salt, divided
 
