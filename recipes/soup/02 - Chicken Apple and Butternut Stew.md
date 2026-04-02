@@ -25,7 +25,7 @@ Chicken, Apple & Butternut Stew
 
 1 ½ cup chicken stock
 
-2 cups chopped Granny Smith apples
+2 apples chopped Granny Smith apples
 
  
 
