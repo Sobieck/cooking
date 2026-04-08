@@ -17,7 +17,7 @@ veg oil
 1 tsp freshly ground black pepper
 
 
-
+# cook
 
 Sauté the kielbasa until well browned and fat rendered, medium low heat. 
 
