@@ -1,3 +1,5 @@
+00 - Masoor Dal.md
+Unrated - Mals Hummus.md
 01 - Brown Butter Cauliflower.md
 01 - Chickpea and spinach soup.md
 01 - Pan fried chicken.md
@@ -26,6 +28,7 @@
 03 - Bulgur with chickpeas and spinach and zatar.md
 03 - Chana soup.md
 03 - Chana with canned indian sauce.md
+03 - Christmas Soup.md
 03 - Frozen Stir Fry Veggies.md
 03 - Hamburgers.md
 03 - Hotdogs.md
