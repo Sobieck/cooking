@@ -2,11 +2,11 @@
 
 veg oil
 
-16 cloves garlic, minced
+144 g garlic, minced
 
-2 lbs. red kidney beans, soaked overnight in brine
+2 lbs. red kidney beans, soaked overnight in brine OR 6 cans red kidney beans
 
-4 quarts chicken broth
+4 quarts chicken broth OR 90 g boullion
 
 2 lbs red bliss potatoes, cut into 1/2 inch cubes
 

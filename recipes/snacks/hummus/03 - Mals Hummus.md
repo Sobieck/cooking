@@ -1,19 +1,19 @@
 
 
 
-1½ cups cooked chickpeas, drained and rinsed
+2 cans chickpeas, drained and rinsed
 
-⅓ cup smooth tahini*
+130 g smooth tahini*
 
-2 tablespoons extra-virgin olive oil
+24 g extra-virgin olive oil
 
-2 tablespoons fresh lemon juice, plus more to taste
+2 lemons fresh lemon juice, plus more to taste
 
-1 garlic clove
+12 g garlic clove
 
-½ teaspoon sea salt
+6 g teaspoon sea salt
 
-5 tablespoons water, or as needed to blend
+water, or as needed to blend
 
 Paprika, red pepper flakes, and/or fresh parsley, for garnish
 
