@@ -1,37 +1,37 @@
 Spices
 
-1/2 teaspoon ground coriander
+1 g ground coriander
  
-1/2 teaspoon ground cumin
+1 g ground cumin
  
-1/2 teaspoon ground cinnamon
+2 g ground cinnamon
  
-1/2 teaspoon ground turmeric
+2 g ground turmeric
  
-1/8 teaspoon ground cardamom
+1 g teaspoon ground cardamom
  
-1/8 teaspoon red pepper flakes
+1 g red pepper flakes
 
 
 Lentils
 
-1 tablespoon vegetable oil
+12 g vegetable oil
 
 1 medium onion , minced
 
-4 medium garlic cloves , minced or pressed through a garlic press (about 4 teaspoons)
+24 g garlic 
 
 1 1/2 teaspoons minced or grated fresh ginger
 
 4 cups water
 
-1 1/4 cups red lentils , rinsed and picked over
+240 g red lentils , rinsed and picked over
 
 1 pound plum tomatoes (about 3 tomatoes), cored, seeded, and chopped medium
 
 1/2 cup minced fresh cilantro leaves
 
-2 tablespoons unsalted butter
+28 g unsalted butter
 
 Salt and ground black pepper
 
