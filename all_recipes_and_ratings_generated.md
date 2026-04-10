@@ -1,5 +1,4 @@
 00 - Masoor Dal.md
-Unrated - Mals Hummus.md
 01 - Brown Butter Cauliflower.md
 01 - Chickpea and spinach soup.md
 01 - Pan fried chicken.md
@@ -13,6 +12,7 @@ Unrated - Mals Hummus.md
 02 - Black eyed peas with greens.md
 02 - Cheese Sandwiches.md
 02 - Chicken Apple and Butternut Stew.md
+02 - Christmas Soup.md
 02 - English Muffins, Capers, and Cream Cheese.md
 02 - Firm Tofu Dipped In Panko.md
 02 - Grilled Cheese Sandie.md
@@ -28,10 +28,10 @@ Unrated - Mals Hummus.md
 03 - Bulgur with chickpeas and spinach and zatar.md
 03 - Chana soup.md
 03 - Chana with canned indian sauce.md
-03 - Christmas Soup.md
 03 - Frozen Stir Fry Veggies.md
 03 - Hamburgers.md
 03 - Hotdogs.md
+03 - Mals Hummus.md
 03 - Mashed Potatoes with Grillers and Gravy.md
 03 - Pearl Couscous with Caramelized Fennel and Spinach.md
 03 - Quesodillas.md
