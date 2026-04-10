@@ -18,6 +18,7 @@
 02 - Grilled Cheese Sandie.md
 02 - Lentil and Lemon Soup.md
 02 - Lentil escarole.md
+02 - Mals Hummus.md
 02 - Pasta salad with fennel, red onion and sun dried tomatoes.md
 02 - Sicilian Escarole with Cannellini Beans.md
 02 - Tabbouleh.md
@@ -31,7 +32,6 @@
 03 - Frozen Stir Fry Veggies.md
 03 - Hamburgers.md
 03 - Hotdogs.md
-03 - Mals Hummus.md
 03 - Mashed Potatoes with Grillers and Gravy.md
 03 - Pearl Couscous with Caramelized Fennel and Spinach.md
 03 - Quesodillas.md
