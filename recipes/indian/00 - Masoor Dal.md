@@ -1,16 +1,16 @@
 Spices
 
-1 g ground coriander
+0.8 g ground coriander
  
 1 g ground cumin
  
-2 g ground cinnamon
+1.3 g ground cinnamon
  
-2 g ground turmeric
+1.5 g ground turmeric
  
-1 g teaspoon ground cardamom
+0.3 g teaspoon ground cardamom
  
-1 g red pepper flakes
+0.3 g red pepper flakes
 
 
 Lentils
