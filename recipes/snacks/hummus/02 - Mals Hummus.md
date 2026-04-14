@@ -1,17 +1,17 @@
 
+DOUBLED RECIPE
 
+4 cans chickpeas, drained and rinsed
 
-2 cans chickpeas, drained and rinsed
+260 g smooth tahini*
 
-130 g smooth tahini*
+50 g extra-virgin olive oil
 
-24 g extra-virgin olive oil
+4 lemons fresh lemon juice, plus more to taste
 
-2 lemons fresh lemon juice, plus more to taste
+25 g garlic clove
 
-12 g garlic clove
-
-6 g teaspoon sea salt
+12 g teaspoon sea salt
 
 water, or as needed to blend
 
