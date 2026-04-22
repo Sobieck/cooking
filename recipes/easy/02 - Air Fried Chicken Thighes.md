@@ -1,1 +1,3 @@
-400 for 20 minutes 
+400 for 25 minutes
+
+salt and pepper

@@ -7,6 +7,7 @@
 01 - Stovetop Popcorn.md
 01 - Thomas keller fried chicken.md
 01 - White Beans and Roasted Tomatoes.md
+02 - Air Fried Chicken Thighes.md
 02 - Baked beets.md
 02 - Bean Burritos.md
 02 - Bean Hard Shell Tacos.md
