@@ -12,7 +12,7 @@ TOMATOES
 
 3 g salt
 
-1/2 cup extra virgin olive oil 
+108 g extra virgin olive oil 
 
 GARNISH
 
