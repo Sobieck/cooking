@@ -1,3 +1,4 @@
+00 - White Beans and Roasted Tomatoes.md
 01 - Brown Butter Cauliflower.md
 01 - Chickpea and spinach soup.md
 01 - Pan fried chicken.md
@@ -6,7 +7,6 @@
 01 - Stove top mac and cheese.md
 01 - Stovetop Popcorn.md
 01 - Thomas keller fried chicken.md
-01 - White Beans and Roasted Tomatoes.md
 02 - Air Fried Chicken Thighes.md
 02 - Baked beets.md
 02 - Bean Burritos.md
