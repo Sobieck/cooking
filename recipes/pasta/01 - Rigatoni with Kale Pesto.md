@@ -6,7 +6,7 @@
 
 108 g extra virgin olive oil
 
-MEASURE 1 tbsp freshly grated lemon rind 
+2 g freshly grated lemon rind 
 
 57 g fresh pecorin romano cheese
 
