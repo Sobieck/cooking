@@ -10,7 +10,7 @@
 
 57 g fresh pecorin romano cheese
 
-3 g kosher salt
+4 g kosher salt
 
 1 g freshly ground black pepper
 
