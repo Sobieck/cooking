@@ -7,7 +7,9 @@
 
 12 g garlic cloves, minced
 
-Salt and pepper
+6 g salt
+
+1.15 g ground pepper
 
 2 (15.5-ounce) cans black-eyed peas, rinsed
 
@@ -21,14 +23,14 @@ Salt and pepper
 
 1 celery rib, chopped fine
 
-1/4 cup chopped fresh cilantro
+1 bunch chopped fresh cilantro
 
-1/4 cup chopped fresh parsley
+1 bunch chopped fresh parsley
 
 
 INSTRUCTIONS
 
-1. Whisk vinegar, oil, sugar, garlic, 1 teaspoon salt, and 1/2 teaspoon pepper together in large bowl.
+1. Whisk vinegar, oil, sugar, garlic, salt, and pepper together in large bowl.
 
 2. Add peas, scallions, bell peppers, jalapeños, celery, cilantro, and parsley and toss to combine. Season with salt
 and pepper to taste. Let sit for at least 1 hour before serving.
