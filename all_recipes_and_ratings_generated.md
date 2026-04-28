@@ -25,6 +25,7 @@
 02 - Rigatoni with Kale Pesto.md
 02 - Sicilian Escarole with Cannellini Beans.md
 02 - Tabbouleh.md
+02 - Texas Caviar.md
 02 - Turkish tomato, bulgur, and red pepper soup.md
 03 - Atole.md
 03 - Beans on toast.md
@@ -32,6 +33,7 @@
 03 - Bulgur with chickpeas and spinach and zatar.md
 03 - Chana soup.md
 03 - Chana with canned indian sauce.md
+03 - Cheese Omlette.md
 03 - Frozen Stir Fry Veggies.md
 03 - Hamburgers.md
 03 - Hotdogs.md
