@@ -1,3 +1,4 @@
+Caramel Ice Cream.md
 01 - Brown Butter Cauliflower.md
 01 - Chickpea and spinach soup.md
 01 - Pan fried chicken.md
@@ -43,7 +44,6 @@
 03 - Simple Pearl Couscous with Peas Feta and Picked Shallots.md
 03 - Spaghetti with butter, capers, lemon, and parm.md
 03 - Waffles.md
-04 - Artichoke Mushroom Soup.md
 04 - Corndogs.md
 04 - French Toast.md
 04 - Frozen Fries.md
@@ -53,3 +53,4 @@
 04 - Stuffin.md
 04 - Veggie Split Pea.md
 05 - Cereal.md
+06 - Artichoke Mushroom Soup.md
