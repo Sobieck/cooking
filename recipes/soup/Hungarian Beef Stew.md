@@ -28,7 +28,7 @@ table salt
 
 1 bay leaf 
 
-240 g (1 cup) beef broth, warmed 
+240 g (1 cup or 8 fl oz) beef broth, warmed 
 
 44 g (.25 cup) sour cream (optional) 
 

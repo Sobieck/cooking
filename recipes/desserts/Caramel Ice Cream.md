@@ -11,9 +11,9 @@ MAKES 2 QUARTS
 
 235 g water
 
-980 g (4 cups) whole milk, warm
+980 g (4 cups or 32 fl oz) whole milk, warm
 
-950 g (4 cups) heavy cream, warm
+950 g (4 cups or 32 fl oz) heavy cream, warm
 
 240 g (20) large egg yokes
 
