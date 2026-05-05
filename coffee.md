@@ -1,8 +1,8 @@
+345 g hot water (~1 1/2 cup) (heated for 3 minutes in microwave) 
+
 20 - 22 g coffee
 
 grind finer than pour over, not as fine as espresso
-
-345 g hot water (~1 1/2 cup) (heated for 3 minutes in microwave) 
 
 Fill funnel with measured coffee, level it gently and wipe the rim clean (DO NOT TAMP DOWN GROUNDS)
 
