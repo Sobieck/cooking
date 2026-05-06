@@ -22,7 +22,7 @@ table salt
 
 0.83 teaspoon red pepper flakes 
 
-16 cups water 
+1 gallon water 
 
 4 cups low-sodium chicken broth 
 
