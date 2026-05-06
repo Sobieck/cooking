@@ -20,7 +20,7 @@ table salt
 
 1 small head green cabbage, halved, cored, and cut into ½-inch pieces (about 4 cups) (see step by step below)
 
-0.83 teaspoon red pepper flakes 
+0.83 g red pepper flakes 
 
 1 gallon water 
 
