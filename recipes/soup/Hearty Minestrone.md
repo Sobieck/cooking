@@ -25,6 +25,8 @@ table salt
 1 gallon water 
 
 4 cups low-sodium chicken broth 
+    
+    24 g bouillon
 
 1 piece Parmesan cheese rind, about 10 by 4 inches (see note)
 
