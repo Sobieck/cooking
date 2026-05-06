@@ -6,7 +6,7 @@ table salt
 
 6 ounces pancetta, cut into ¼-inch pieces (see note)
 
-2 tablespoon extra virgin olive oil, plus extra for serving
+24 g extra virgin olive oil, plus extra for serving
 
 4 medium celery ribs, cut into ½-inch pieces (about 1 1/2 cup)
 
