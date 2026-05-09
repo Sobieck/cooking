@@ -1,5 +1,6 @@
-Caramel Ice Cream.md  
+Farro with Mushrooms and Thyme.md  
 01 - Brown Butter Cauliflower.md  
+01 - Caramel Ice Cream.md  
 01 - Chickpea and spinach soup.md  
 01 - Hearty Minestrone.md  
 01 - Pan fried chicken.md  
