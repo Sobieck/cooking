@@ -1,23 +1,23 @@
 MAKES 2 QUARTS
 
-528 g granulated sugar 
+660 g granulated sugar 
 
     divided 
     
-    488 g for caramel
+    610 g for caramel
 
-    40 g for eggs
+    50 g for eggs
 
 
-188 g water
+235 g water
 
-784 g (3.2 cups or 25.6 fl oz) whole milk, warm
+980 g (4 cups or 32 fl oz) whole milk, warm
 
-760 g (3.2 cups or 25.6 fl oz) heavy cream, warm
+950 g (4 cups or 32 fl oz) heavy cream, warm
 
-192 g (16) large egg yokes
+240 g (20) large egg yokes
 
-7.2 g kosher salt
+9 g kosher salt
 
 
 ## Steps
@@ -46,5 +46,7 @@ It is done when it coats spoon and when steaming. egg yorks done at 158F
 Strain into bowl over ice, add salt. Stir from time to time until cool. 
 
 Refrigerate over night. Make ice-cream next day. 
+
+Make ice cream in 4-5 cup batches 
 
 Adapted from Ad hoc at home pg 321
