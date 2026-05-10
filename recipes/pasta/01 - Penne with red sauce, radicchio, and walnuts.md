@@ -1,27 +1,31 @@
 1 lbs penne
 
-1/4 cup olive oil
+54 g olive oil
 
 1 red onion
 
-4 garlic cloves
+24 g garlic cloves
 
 1 1/2 tablespoons finely chopped anchovies
 
+6 g salt
+
+1.15 g black pepper
+
 1 28 ounce can crushed tomatoes 
 
-1/2 teaspoon crushed red pepper
+0.835 g crushed red pepper
 
 1 head radicchio, sliced
 
-1/3 cup chopped parsley
+1.87 g chopped parsley
 
 Chopped toasted walnut and shaved pecorina for serving
 
 
 Cook pasta, reserve 1/3 cup water
 
-Meanwhile, heat oil, add onion, anchovies, 1 tsp salt, 1/2 tsp black pepper, cook until softened. 
+Meanwhile, heat oil, add onion, anchovies, salt, black pepper, cook until softened. 
 
 Add garlic until fragrent
 
