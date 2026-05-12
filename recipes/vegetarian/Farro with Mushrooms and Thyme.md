@@ -1,4 +1,4 @@
-1 cup whole farro
+1 cup whole farro 170 g
 
 18 g salt
 
@@ -12,9 +12,9 @@
 
 0.8 g fresh thyme
 
-2 tablespoons dry sherry
+2 tablespoons dry sherry 25.88 g
 
-2 tablespoons minced fresh parsley
+2 tablespoons minced fresh parsley 7.08 g
 
 5.07 g sherry vinegar
 
