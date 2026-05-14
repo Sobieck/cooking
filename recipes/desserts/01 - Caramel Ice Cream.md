@@ -15,7 +15,7 @@ MAKES 2 QUARTS
 
 950 g (4 cups or 32 fl oz) heavy cream, warm
 
-240 g (20) large egg yokes
+300 g (20) large egg yokes
 
 9 g kosher salt
 
