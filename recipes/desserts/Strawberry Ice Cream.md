@@ -16,7 +16,7 @@
 
 2 g salt
 
-8 ounces fresh strawberries, sliced
+8 ounces frozen sliced strawberries
 
 # Steps
 
