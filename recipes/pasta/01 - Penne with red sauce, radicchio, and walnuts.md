@@ -23,6 +23,8 @@
 Chopped toasted walnut and shaved pecorina for serving
 
 
+# steps 
+
 Cook pasta, reserve 1/3 cup water
 
 Meanwhile, heat oil, add onion, anchovies, salt, black pepper, cook until softened. 
