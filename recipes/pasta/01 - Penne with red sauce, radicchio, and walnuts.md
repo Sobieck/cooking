@@ -4,13 +4,13 @@
 
 1 red onion
 
-24 g garlic cloves
-
-1 1/2 tablespoons finely chopped anchovies
+1 1/2 tablespoons finely chopped anchovies 19.5 g
 
 6 g salt
 
 1.15 g black pepper
+
+24 g garlic cloves
 
 1 28 ounce can crushed tomatoes 
 
