@@ -4,7 +4,7 @@
 
 1 red onion
 
-1 1/2 tablespoons finely chopped anchovies 19.5 g
+19.5 g finely chopped anchovies 
 
 6 g salt
 
