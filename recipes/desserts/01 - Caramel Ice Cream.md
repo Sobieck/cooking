@@ -33,7 +33,7 @@ Stir to dissolve sugar, then don't stir for 15 minutes.
 
 The caramel should be a deep amber. 
 
-Remove pan and slowly add cream and milk. 
+Remove pan and slowly add cream and milk. Heat up to 175F
 
 Whisk remaining sugar and eggs, temper with entire mixture. use 3 quart stainless
 
@@ -41,7 +41,7 @@ Use strainer to return mixture to clean pan (blue cast iron)
 
 Over med heat, stir while scrapping bottom. 
 
-It is done when it coats spoon and when steaming. egg yorks done at 158F
+It is done when it coats spoon and when steaming. 180F
 
 Strain into bowl over ice, add salt. Stir from time to time until cool. 
 
