@@ -4,7 +4,7 @@
 
     142 g sugar
 
-2 lbs frozen strawberries
+900 g (~2 lbs) frozen strawberries
 
 980 g (4 cups or 32 fl oz) whole milk
 
@@ -16,7 +16,9 @@
 
 2 g salt
 
-8 ounces frozen sliced strawberries
+225 g frozen sliced strawberries
+
+    112 g per batch
 
 # Steps
 
