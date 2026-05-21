@@ -45,7 +45,7 @@ grated Parmesan cheese, for serving
 
 Dissolve 54 g salt in 4 quarts cold water in large bowl or container. Add beans and soak at room temperature for at least 8 hours and up to 24 hours. Drain and rinse well.
 
-Heat oil and pancetta in large Dutch oven over medium-high heat. Cook, stirring occasionally, until pancetta is lightly browned and fat has rendered, 3 to 5 minutes. Add celery, carrot, onions, and zucchini; cook, stirring frequently, until vegetables are softened and lightly browned, 5 to 9 minutes. Stir in garlic, cabbage, 6 g salt, and red pepper flakes; continue to cook until cabbage starts to wilt, 1 to 2 minutes longer. Transfer vegetables to rimmed baking sheet and set aside.
+Heat oil and pancetta in large Dutch oven over medium-high heat. Cook, stirring occasionally, until pancetta is lightly browned and fat has rendered, 3 to 5 minutes. Add celery, carrot, onions, and zucchini; cook, stirring frequently, until vegetables are softened and lightly browned, 5 to 9 minutes. Stir in garlic, cabbage, 2 g salt, and red pepper flakes; continue to cook until cabbage starts to wilt, 1 to 2 minutes longer. Transfer vegetables to rimmed baking sheet and set aside.
 
 Add soaked beans, water, broth, Parmesan rind, and bay leaf to now-empty Dutch oven and bring to boil over high heat. Reduce heat and vigorously simmer, stirring occasionally, until beans are fully tender and liquid begins to thicken, 45 to 60 minutes.
 
