@@ -1,3 +1,5 @@
+Strawberry Ice Cream.md  
+Vanilla Ice Cream.md  
 01 - Brown Butter Cauliflower.md  
 01 - Caramel Ice Cream.md  
 01 - Chickpea and spinach soup.md  
