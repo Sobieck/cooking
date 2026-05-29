@@ -10,7 +10,7 @@
 
 950 g (4 cups or 32 fl oz) heavy cream
 
-1 tablespoons vanilla paste 
+1 tablespoons vanilla paste (18 g)
 
 300 g (20) large egg yokes
 
@@ -22,7 +22,7 @@
 
 # Steps
 
-Heat frozen strawberries and 188 g sugar until strawberries are broken down.
+Heat frozen strawberries and 188 g sugar until strawberries are broken down and reduced. 45 mins?
 
 Add milk and vanilla over medium-high until just below a simmer. 175 degrees F
 
