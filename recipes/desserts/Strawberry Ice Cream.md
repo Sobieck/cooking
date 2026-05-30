@@ -10,7 +10,7 @@
 
 950 g (4 cups or 32 fl oz) heavy cream
 
-1 tablespoons vanilla paste (18 g)
+18 g vanilla paste
 
 300 g (20) large egg yokes
 
