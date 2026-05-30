@@ -16,7 +16,7 @@ TOMATOES
 
 GARNISH
 
-8 oz torn fresh basil leaves
+4 oz torn fresh basil leaves
 
 INSTRUCTIONS
 
