@@ -8,7 +8,7 @@
 
     142 g sugar
 
-1 tablespoons vanilla paste 
+18 g vanilla paste 
 
 300 g (20) large egg yokes
 
