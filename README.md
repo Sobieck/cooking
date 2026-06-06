@@ -1,4 +1,3 @@
-Strawberry Ice Cream.md  
 Vanilla Ice Cream.md  
 01 - Brown Butter Cauliflower.md  
 01 - Caramel Ice Cream.md  
@@ -58,5 +57,6 @@ Vanilla Ice Cream.md
 04 - Sauerkraut stew.md  
 04 - Veggie Split Pea.md  
 05 - Cereal.md  
+05 - Strawberry Ice Cream.md  
 06 - Artichoke Mushroom Soup.md  
 06 - Stuffin.md  
