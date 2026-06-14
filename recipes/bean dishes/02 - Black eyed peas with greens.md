@@ -1,28 +1,28 @@
-12 g vegetable oil
+24 g vegetable oil
 
 1 bag frozen onions
 
-12 g salt
+24 g salt
 
-1.15 g pepper
+2.3 g pepper
 
-24 g garlic
+48 g garlic
 
-1 g ground cumin
+2 g ground cumin
 
-0.41 g red pepper flake
+0.8 g red pepper flake
 
-472 g (2 cups) water
+944 g (4 cups) water
 
-1 14.5 can diced tomatoes
+2 14.5 can diced tomatoes
 
 1 bag frozen collard greens
 
-2 15 ounce cans of black eyed peas
+4 15 ounce cans of black eyed peas
 
-15 g cidar vinegar
+30 g cidar vinegar
 
-4 g sugar
+8 g sugar
 
 ## Instructions
 
