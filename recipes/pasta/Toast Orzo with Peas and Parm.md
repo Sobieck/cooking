@@ -31,3 +31,6 @@ pinch of ground nutmeg
 5. Off heat add water and wine, bring to a boil at medium high
 6. Simmer over low for 15 minutes until orzo is tender
 7. Stir in peas and parm. Let warm off heat.
+
+
+The cooks illustrated cookbook pg 236
