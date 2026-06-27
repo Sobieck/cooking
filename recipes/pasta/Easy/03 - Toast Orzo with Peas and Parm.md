@@ -1,6 +1,6 @@
 28 g butter
 
-1 onion
+1 pack frozen onion
 
 salt
 
