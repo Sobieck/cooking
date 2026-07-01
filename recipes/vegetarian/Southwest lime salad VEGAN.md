@@ -14,6 +14,8 @@ avocado oil to coat red peppers
 
 2 15 ounce cans black beans, drained
 
+add some taijin 
+
 1 medium avocado, chopped
 
 # instructions
