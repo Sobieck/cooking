@@ -10,19 +10,21 @@ avocado oil to coat red peppers
 
 1 g salt
 
+1 g taijin
+
 1 bag frozen corn with a bit of olive oil
 
 2 15 ounce cans black beans, drained
 
-add some taijin 
-
 1 medium avocado, chopped
+
+    frozen works, heat them in the micro for 1 minute
 
 # instructions
 
 1. preheat over to 400
 2. sprinkle red pepper with salt and pepper. roast red peppers for 10 minutes
-3. Heat lime, syrup, chili powder, salt for 3 minutes on medium
+3. Heat lime, syrup, chili powder, salt, taijin for 3 minutes on medium
 4. Heat corn up
 5. Heat beans
 6. Mix in red peppers
