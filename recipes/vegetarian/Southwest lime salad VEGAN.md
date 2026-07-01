@@ -10,7 +10,7 @@ avocado oil to coat red peppers
 
 1 g salt
 
-1 bag frozen corn
+1 bag frozen corn with a bit of olive oil
 
 2 15 ounce cans black beans, drained
 
