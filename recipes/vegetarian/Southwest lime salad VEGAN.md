@@ -1,5 +1,7 @@
 2 diced red peppers
 
+avocado oil to coat red peppers
+
 2 limes, juiced
 
 5 g maple syrup
