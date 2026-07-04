@@ -1,4 +1,8 @@
-Southwest lime salad VEGAN.md  
+Dark and Stormy.md  
+Mint Julep.md  
+Mint Simple Syrup EASY.md  
+Mojito.md  
+Pesto alla trapanese EASY VEGAN.md  
 Whole Grain Waffles.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
 01 - Caramel Ice Cream.md  
@@ -31,6 +35,7 @@ Whole Grain Waffles.md
 02 - Rigatoni with Kale Pesto.md  
 02 - Rotisserie Chicken EASY.md  
 02 - Sicilian Escarole with Cannellini Beans.md  
+02 - Southwest lime salad VEGAN EASY.md  
 02 - Tabbouleh VEGAN.md  
 02 - Texas Caviar EASY VEGAN.md  
 02 - Turkish tomato, bulgur, and red pepper soup.md  
