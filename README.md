@@ -1,7 +1,3 @@
-Dark and Stormy.md  
-Mint Julep.md  
-Mint Simple Syrup EASY.md  
-Mojito.md  
 Pesto alla trapanese EASY VEGAN.md  
 Whole Grain Waffles.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
@@ -31,6 +27,8 @@ Whole Grain Waffles.md
 02 - Lentil escarole.md  
 02 - Mals Hummus VEGAN.md  
 02 - Masoor Dal EASY.md  
+02 - Mint Julep.md  
+02 - Mint Simple Syrup EASY.md  
 02 - Pasta salad with fennel, red onion and sun dried tomatoes VEGET.md  
 02 - Rigatoni with Kale Pesto.md  
 02 - Rotisserie Chicken EASY.md  
@@ -50,12 +48,14 @@ Whole Grain Waffles.md
 03 - Hamburgers EASY.md  
 03 - Hotdogs EASY.md  
 03 - Mashed Potatoes with Grillers and Gravy EASY VEGAN.md  
+03 - Mojito.md  
 03 - Pearl Couscous with Caramelized Fennel and Spinach.md  
 03 - Quesodillas EASY VEGET.md  
 03 - Simple Pearl Couscous with Peas Feta and Picked Shallots.md  
 03 - Spaghetti with butter, capers, lemon, and parm EASY.md  
 03 - Toast Orzo with Peas and Parm EASY.md  
 03 - Vanilla Ice Cream EASY.md  
+04 - Dark and Stormy.md  
 04 - French Toast EASY.md  
 04 - Frozen Fries EASY VEGAN.md  
 04 - Hungarian Beef Stew.md  
