@@ -1,4 +1,3 @@
-Pesto alla trapanese EASY VEGAN.md  
 Whole Grain Waffles.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
 01 - Caramel Ice Cream.md  
@@ -61,6 +60,7 @@ Whole Grain Waffles.md
 04 - Hungarian Beef Stew.md  
 04 - Morningstar Corndogs EASY VEGAN.md  
 04 - Pasta with Can Sauce EASY VEGAN.md  
+04 - Pesto alla trapanese EASY VEGAN.md  
 04 - Potato Vindaloo.md  
 04 - Sauerkraut stew.md  
 04 - Veggie Split Pea.md  
