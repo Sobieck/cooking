@@ -12,7 +12,7 @@ Salt
 
 1 (14-ounce) can whole tomatoes
 
-1 packed cup sauerkraut (215 g), plus ½ cup (100 g) sauerkraut 
+215 g packed sauerkraut, 100 g sauerkraut 
 brine (or substitute fresh cabbage and rice 
 vinegar; see Tip)
 
@@ -31,8 +31,9 @@ Add the onion and cook, stirring frequently, for 5 minutes, until softened and t
 
 Add the paprika and garlic and cook, stirring, for 1 minute, until fragrant.
 
-Add the tomatoes, crushing them as you add them to the pot, plus 6 cups of water, the sauerkraut and brine (or the cabbage and vinegar), the bunch of parsley and a hefty pinch of salt. Bring to a boil, loosely cover the pot with a lid and boil for 15 minutes.
+Add the tomatoes, crushing them as you add them to the pot, plus 6 cups of water, the sauerkraut and brine (or the cabbage and vinegar), the bunch of parsley and a hefty pinch of salt. Bring to a boil, loosely cover the pot with a lid and boil for 60 minutes.
 
-Taste and season with more salt if needed. Discard the parsley bunch and serve the soup with freshly chopped parsley on top.
+Taste and season with more salt if needed. Discard the parsley bunch and serve the soup with freshly chopped parsley on top. NEEDS SALT
+
 
 https://cooking.nytimes.com/recipes/1025227-one-pot-cabbage-roll-soup
