@@ -12,7 +12,7 @@ Salt
 
 1 (14-ounce) can whole tomatoes
 
-1 packed cup sauerkraut, plus ½ cup sauerkraut 
+1 packed cup sauerkraut (215 g), plus ½ cup (100 g) sauerkraut 
 brine (or substitute fresh cabbage and rice 
 vinegar; see Tip)
 
