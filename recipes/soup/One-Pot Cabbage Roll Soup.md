@@ -16,6 +16,8 @@ Salt
 brine (or substitute fresh cabbage and rice 
 vinegar; see Tip)
 
+6 cups water
+
 1 bunch parsley, plus more for serving
 
 ## instructions
