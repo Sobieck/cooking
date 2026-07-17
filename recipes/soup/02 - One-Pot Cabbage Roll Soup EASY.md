@@ -1,24 +1,24 @@
-1 pound ground beef (preferably 20 percent fat)
+2 pound ground beef (preferably 20 percent fat)
 
-Salt
+Salt, a lot
 
-105 g brown rice
+210 g brown rice
 
 1 bag frozen onions
 
-7 g sweet paprika
+14 g sweet paprika
 
-36 g garlic cloves, minced or finely grated
+72 g garlic cloves, minced or finely grated
 
-1 (14-ounce) can whole tomatoes
+2 (14-ounce) can whole tomatoes
 
-215 g packed sauerkraut, 100 g sauerkraut 
+430 g packed sauerkraut, 200 g sauerkraut 
 brine (or substitute fresh cabbage and rice 
-vinegar; see Tip)
+vinegar; see Tip) - ~2 bags cleveland sauerkraut
 
-6 cups water
+12 cups water
 
-1 bunch parsley, plus more for serving
+2 bunch parsley, plus more for serving
 
 ## instructions
 
@@ -31,7 +31,7 @@ Add the onion and cook, stirring frequently, for 5 minutes, until softened and t
 
 Add the paprika and garlic and cook, stirring, for 1 minute, until fragrant.
 
-Add the tomatoes, crushing them as you add them to the pot, plus 6 cups of water, the sauerkraut and brine (or the cabbage and vinegar), the bunch of parsley and a hefty pinch of salt. Bring to a boil, loosely cover the pot with a lid and boil for 60 minutes.
+Add the tomatoes, crushing them as you add them to the pot, plus water, the sauerkraut and brine (or the cabbage and vinegar), the bunch of parsley and a hefty pinch of salt. Bring to a boil, loosely cover the pot with a lid and boil for 60 minutes.
 
 Taste and season with more salt if needed. Discard the parsley bunch and serve the soup with freshly chopped parsley on top. NEEDS SALT
 
