@@ -1,3 +1,5 @@
+Campanelle with Lentils.md  
+Roasted Beef Chuck with Horseradish-Parsley Sauce.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
 01 - Caramel Ice Cream.md  
 01 - Chickpea and spinach soup.md  
