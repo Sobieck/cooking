@@ -1,4 +1,3 @@
-Whole Grain Waffles.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
 01 - Caramel Ice Cream.md  
 01 - Chickpea and spinach soup.md  
@@ -28,6 +27,7 @@ Whole Grain Waffles.md
 02 - Masoor Dal EASY.md  
 02 - Mint Julep.md  
 02 - Mint Simple Syrup EASY.md  
+02 - One-Pot Cabbage Roll Soup EASY.md  
 02 - Pasta salad with fennel, red onion and sun dried tomatoes VEGET.md  
 02 - Rigatoni with Kale Pesto.md  
 02 - Rotisserie Chicken EASY.md  
@@ -36,6 +36,7 @@ Whole Grain Waffles.md
 02 - Tabbouleh VEGAN.md  
 02 - Texas Caviar EASY VEGAN.md  
 02 - Turkish tomato, bulgur, and red pepper soup.md  
+02 - Ukrainian Dill Potatoes VEGAN.md  
 03 - Atole.md  
 03 - Beans on toast EASY VEGAN.md  
 03 - BLT EASY.md  
@@ -49,6 +50,7 @@ Whole Grain Waffles.md
 03 - Mashed Potatoes with Grillers and Gravy EASY VEGAN.md  
 03 - Mojito.md  
 03 - Pearl Couscous with Caramelized Fennel and Spinach.md  
+03 - Puttanesca.md  
 03 - Quesodillas EASY VEGET.md  
 03 - Simple Pearl Couscous with Peas Feta and Picked Shallots.md  
 03 - Spaghetti with butter, capers, lemon, and parm EASY.md  
@@ -64,6 +66,7 @@ Whole Grain Waffles.md
 04 - Potato Vindaloo.md  
 04 - Sauerkraut stew.md  
 04 - Veggie Split Pea.md  
+04 - Whole Grain Waffles.md  
 05 - Cereal EASY VEGAN.md  
 05 - Strawberry Ice Cream.md  
 06 - Artichoke Mushroom Soup.md  
