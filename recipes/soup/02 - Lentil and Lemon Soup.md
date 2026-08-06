@@ -8,7 +8,7 @@ LENTIL SOUP WITH CUMIN, CORIANDER AND LEMON ZEST
 
 2 medium yellow onion, diced
 
-48 g tablespoons olive oil
+48 g olive oil
 
 24 g garlic, minced
 
