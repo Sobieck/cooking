@@ -46,6 +46,7 @@ Roasted Beef Chuck with Horseradish-Parsley Sauce.md
 03 - Chana soup.md  
 03 - Chana with canned indian sauce EASY VEGAN.md  
 03 - Cheese Omlette EASY.md  
+03 - Coffee Ice Cream EASY.md  
 03 - Frozen Stir Fry Veggies EASY VEGAN.md  
 03 - Hamburgers EASY.md  
 03 - Hotdogs EASY.md  
@@ -68,6 +69,7 @@ Roasted Beef Chuck with Horseradish-Parsley Sauce.md
 04 - Potato Vindaloo.md  
 04 - Sauerkraut stew.md  
 04 - Veggie Split Pea.md  
+04 - Velveeta Mac and Cheese EASY VEGET.md  
 04 - Whole Grain Waffles.md  
 05 - Cereal EASY VEGAN.md  
 05 - Strawberry Ice Cream.md  
