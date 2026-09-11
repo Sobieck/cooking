@@ -1,5 +1,7 @@
+Baked Brown Rice with Black Beans and Cilantro.md  
 Campanelle with Lentils.md  
 Roasted Beef Chuck with Horseradish-Parsley Sauce.md  
+Roasted Tomato and White Bean Stew VEGAN.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
 01 - Caramel Ice Cream.md  
 01 - Chickpea and spinach soup.md  
@@ -23,8 +25,8 @@ Roasted Beef Chuck with Horseradish-Parsley Sauce.md
 02 - Farro with Mushrooms and Thyme VEGAN.md  
 02 - Firm Tofu Dipped In Panko EASY VEGAN.md  
 02 - Grilled Cheese Sandie EASY VEGET.md  
-02 - Lentil and Lemon Soup.md  
-02 - Lentil escarole.md  
+02 - Lentil and Lemon Soup VEGAN.md  
+02 - Lentil escarole VEGET.md  
 02 - Mals Hummus VEGAN.md  
 02 - Masoor Dal EASY.md  
 02 - Mint Julep.md  
@@ -43,7 +45,7 @@ Roasted Beef Chuck with Horseradish-Parsley Sauce.md
 03 - Beans on toast EASY VEGAN.md  
 03 - BLT EASY.md  
 03 - Bulgur with chickpeas and spinach and zatar VEGET.md  
-03 - Chana soup.md  
+03 - Chana soup VEGAN.md  
 03 - Chana with canned indian sauce EASY VEGAN.md  
 03 - Cheese Omlette EASY.md  
 03 - Coffee Ice Cream EASY.md  
@@ -68,7 +70,7 @@ Roasted Beef Chuck with Horseradish-Parsley Sauce.md
 04 - Pesto alla trapanese EASY VEGAN.md  
 04 - Potato Vindaloo.md  
 04 - Sauerkraut stew.md  
-04 - Veggie Split Pea.md  
+04 - Veggie Split Pea VEGAN.md  
 04 - Velveeta Mac and Cheese EASY VEGET.md  
 04 - Whole Grain Waffles.md  
 05 - Cereal EASY VEGAN.md  
