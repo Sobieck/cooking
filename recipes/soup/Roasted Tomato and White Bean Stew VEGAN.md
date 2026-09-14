@@ -1,27 +1,27 @@
 
 1 bunch roughly chopped Italian parsley leaves and tender stems
 
-1 large lemon's zest
+2 large lemon's zest
 
-10 ounces cherry or grape tomatoes
+24 ounces cherry or grape tomatoes
 
-54 g olive oil, plus 2 tablespoons and more for drizzling (optional)
+108 g olive oil, plus 2 tablespoons and more for drizzling (optional)
 
-2.4 g fresh thyme leaves
+5 g fresh thyme leaves
 
 Kosher salt and black pepper
 
-1 medium yellow onion, thinly sliced
+1 bag frozen yellow onion, thinly sliced
 
-18 g garlic, thinly sliced
+36 g garlic, thinly sliced
 
-0.8 g red-pepper flakes
+1.6 g red-pepper flakes
 
-2 (15-ounce) cans white beans (such as butter or cannellini), rinsed
+4 (15-ounce) cans white beans (such as butter or cannellini), rinsed
 
-1.5 cup water
+3 cup water
 
-9 g chicken or veggie bouillon
+18 g chicken or veggie bouillon
 
 Flaky salt, for serving (optional)
 

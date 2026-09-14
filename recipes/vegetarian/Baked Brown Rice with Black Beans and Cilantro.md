@@ -1,24 +1,24 @@
-48 g olive oil
+96 g olive oil
 
-1 chopped green onion
+1 bag frozen chopped onions
 
-18 g minced garlic
+36 g minced garlic
 
-6 g chicken bouillon 
+12 g chicken bouillon 
 
-3.25 cups water
+6.5 cups water
 
-315 g uncooked brown rice
+630 g uncooked brown rice
 
-6 g salt
+12 g salt
 
-1 15 ounce can of black beans
+2 15 ounce can of black beans
 
-1 bunch of cilantro
+2 bunch of cilantro
 
-0.575 g ground black pepper
+1.25 g ground black pepper
 
-1 lime, cut into wedges
+2 lime, cut into wedges
 
 ## Directions
 

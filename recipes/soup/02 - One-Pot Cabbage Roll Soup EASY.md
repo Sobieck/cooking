@@ -1,3 +1,5 @@
+MEASURE SALT POURS NEXT TIME. IT WAS TOO SALTY BY JUST GOING BY TASTE
+
 2 pound ground beef (preferably 20 percent fat)
 
 Salt, a lot
