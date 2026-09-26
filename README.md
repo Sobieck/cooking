@@ -1,4 +1,3 @@
-Baked Brown Rice with Black Beans and Cilantro.md  
 Campanelle with Lentils.md  
 Roasted Beef Chuck with Horseradish-Parsley Sauce.md  
 Roasted Tomato and White Bean Stew VEGAN.md  
@@ -42,6 +41,7 @@ Roasted Tomato and White Bean Stew VEGAN.md
 02 - Turkish tomato, bulgur, and red pepper soup.md  
 02 - Ukrainian Dill Potatoes VEGAN.md  
 03 - Atole.md  
+03 - Baked Brown Rice with Black Beans and Cilantro EASY VEGAN.md  
 03 - Beans on toast EASY VEGAN.md  
 03 - BLT EASY.md  
 03 - Bulgur with chickpeas and spinach and zatar VEGET.md  
