@@ -10,7 +10,7 @@
 
 2 celery rib, chopped fine
 
-36 medium garlic cloves, minced
+36 g garlic cloves, minced
 
 1.6 g fresh thyme leave
 
