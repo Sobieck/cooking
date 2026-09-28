@@ -18,7 +18,7 @@
 
 4 bay leaves
 
-0.9 cayenne pepper
+0.9 g cayenne pepper
 
 fresh ground black pepper
 
