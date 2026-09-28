@@ -24,7 +24,7 @@
 
 36 g bouillon
 
-18 cups water
+18 cups water (1 gallon 2 cups)
 
 1 lbs andouille sausages , halved lengthwise and cut into 1/4-inch slices
 
