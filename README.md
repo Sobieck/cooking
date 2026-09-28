@@ -1,4 +1,5 @@
 Campanelle with Lentils.md  
+Red Beans and Rice.md  
 Roasted Beef Chuck with Horseradish-Parsley Sauce.md  
 Roasted Tomato and White Bean Stew VEGAN.md  
 01 - Brown Butter Cauliflower EASY VEGET.md  
@@ -61,6 +62,7 @@ Roasted Tomato and White Bean Stew VEGAN.md
 03 - Spaghetti with butter, capers, lemon, and parm EASY.md  
 03 - Toast Orzo with Peas and Parm EASY.md  
 03 - Vanilla Ice Cream EASY.md  
+04 - Chicken Enchiladas EASY.md  
 04 - Dark and Stormy.md  
 04 - French Toast EASY.md  
 04 - Frozen Fries EASY VEGAN.md  
