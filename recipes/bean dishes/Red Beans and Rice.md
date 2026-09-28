@@ -20,7 +20,7 @@
 
 0.9 g cayenne pepper
 
-fresh ground black pepper
+1/2 teaspoon fresh ground black pepper
 
 36 g bouillon
 
