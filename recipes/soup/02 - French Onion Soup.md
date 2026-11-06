@@ -9,8 +9,6 @@ FOR THE SOUP
 
 1.6 g thyme leaves (from 8 to 10 sprigs)
 
-8 g sugar
-
 12 g salt
 
 Salt and pepper
