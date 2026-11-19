@@ -1,4 +1,6 @@
-2 pound boneless, skinless chicken thighs
+makes 6 servings
+
+2.5 pound boneless, skinless chicken thighs
 
 Salt and black pepper
 
