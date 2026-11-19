@@ -4,7 +4,7 @@ Salt and black pepper
 
 48 g neutral oil (such as canola or vegetable)
 
-4 tablespoons minced ginger (from a 4-inch piece)
+24 g minced ginger
 
 36 g garlic cloves, minced
 
